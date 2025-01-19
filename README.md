@@ -31,4 +31,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/zahidkhurshid)
+⭐️ From [Muhammad Zahid Khurshid](https://github.com/zahidkhurshid)
